@@ -1,4 +1,4 @@
-cringe make life alive
+CRINGE MAKE LIFE ALIVE
 
 
 ## 🌐 Socials:
